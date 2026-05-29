@@ -1,2 +1,1 @@
-she/her only, don't use anything else unless i specify otherwise<br>
-i don't like to converse, but interacting is fine regardless of that<br>
+she/her. i like artful from die of death and ivan from bad things<br>i have severe paranoia and im mentally ill. hides arent personal
